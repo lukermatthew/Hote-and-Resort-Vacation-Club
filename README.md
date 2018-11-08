@@ -1,1 +1,1 @@
-# Hote-and-Resort-Vacation-Club
+# Hotel-and-Resort-Vacation-Club
